@@ -1,1 +1,0 @@
-# artemalexandr.github.io
